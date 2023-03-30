@@ -1,1 +1,1 @@
-# Social-icons-neon
+# Social media icons with neon effect
